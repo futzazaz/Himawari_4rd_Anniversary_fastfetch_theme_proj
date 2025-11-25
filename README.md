@@ -1,1 +1,2 @@
 # Himawari_4rd_Anniversary_fastfetch_theme_proj
+# Himawari_4rd_Anniversary_fastfetch_theme_proj
